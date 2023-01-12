@@ -8,5 +8,5 @@ Hi there 👋 I'm Wale. I do Data Analytics, Business Intelligence & Data Visual
 - 💬 You can ask me about anyting data, Business Intelligence and Reporting
 - 📫 How to reach me:https://www.linkedin.com/in/waleraji/
 - 💬 You can ask me about anyting data, Business Intelligence and Reporting
-- ⚽ A proud Chealse fan..... Up Blues
+- ⚽ A proud Chelsea fan..... Up Blues
 
